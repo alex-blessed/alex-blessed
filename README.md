@@ -6,4 +6,4 @@
 - 📫 И еще меня можно найти тут: </br>
 Telegram: [@blessmern](https://t.me/blessmern) </br>
 Email: [alexplakhotin@gmail.com](alexplakhotin@gmail.com) </br>
-VK: [Александр](https://vk.com/alexandr_flw) </br>
+VK: [Александр](https://vk.com/alexandr_flw)
